@@ -1,2 +1,2 @@
 # doctruyen
-Dọc Truyện
+Đọc Truyện
